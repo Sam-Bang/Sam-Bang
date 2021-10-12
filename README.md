@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sam-Bang
+- 👀 I’m interested in making fun projects
+- 🌱 I’m currently learning comptuter science at North Dakota State University
+- 📫 How to reach me samuelbang01@gmail.com
